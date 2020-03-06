@@ -8,4 +8,3 @@
 ► Blog: https://blog.leanhduc.pro.vn
 ► Elearning: https://thanglongit.vn
 ► Email: Admin@leanhduc.pro.vn
-► Zalo: 0386.897.757
